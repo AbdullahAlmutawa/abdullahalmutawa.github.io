@@ -1,1 +1,0 @@
-# abdullahalmutawa.github.io
